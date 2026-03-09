@@ -28,7 +28,7 @@ Net Donat Token (NDT) — это цифровой актив, предназна
 ---
 
 ## 📬 Контакты и сообщество
-📢 **Официальная группа:** [Telegram](https://t.me/netdonat)  
-📧 **Поддержка:** [Telegram](https://t.me/netdonat) 
+📢 **Официальная группа:** [Telegram](https://t.me/holdxndt/1)  
+📧 **Поддержка:** [Telegram](https://t.me/holdxndt/1) 
 
 🚀 **Присоединяйтесь к сообществу и развивайте проект вместе с нами!**
